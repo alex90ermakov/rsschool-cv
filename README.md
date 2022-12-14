@@ -1,1 +1,1 @@
-<https://alex90ermakov.gihub.io/rsschool-cv/
+<https://alex90ermakov.gihub.io/rsschool-cv/>
